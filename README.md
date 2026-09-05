@@ -2,7 +2,7 @@
 
 # Guilherme Dias
 
-**Construindo software brasileiro, com IA, para gente real.**
+**Um jovem normal.**
 
 Coqueiral · Minas Gerais · Brasil
 
